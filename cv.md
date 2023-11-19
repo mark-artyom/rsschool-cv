@@ -3,6 +3,11 @@
 
 ***
 
+### Contact
+[Discord](https://discordapp.com/users/1083479219415298068/) [Telegram](https://t.me/mark_artyom/)
+
+***
+
 ### About Me
 At the moment, my professional activity is related to retail trade, warehouse logistics and international transport. In my free time I study design and programming. In the future, I will work in the digital profession.
 
